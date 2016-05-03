@@ -5,8 +5,8 @@ Here's a medium to get the complete information about the mess as we present you
 
 
 #### Download now on Google Play Store!
-Link: 
-Link:[https://drive.google.com/file/d/0B1rW1voPZHojZnE2c0p0NXI1Zk0/view?usp=sharing]
+
+Link:https://drive.google.com/file/d/0B1rW1voPZHojZnE2c0p0NXI1Zk0/view?usp=sharing
 
 ### Screenshot
 
